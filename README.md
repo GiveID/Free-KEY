@@ -3,3 +3,6 @@ NGL this sounds like a scam but it's not. You try to guess a number between 1-10
 
 
 Funny number = answer!
+
+
+MY DISCORDDD IS NOT CANCO_1 ANYMORE ITS quanoa
